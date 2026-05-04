@@ -1,2 +1,2 @@
 
-👉 https://dionberes.github.io/Burgweintingtrails/
+👉 https://dionberes.github.io/burgweintingtrails/
